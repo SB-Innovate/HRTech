@@ -1,4 +1,4 @@
-## 智跃人才猎头服务
+## 创新
 
-请浏览网站：https://sb-recruit.github.io/
+请浏览网站：https://SB-Creative.github.io
 
